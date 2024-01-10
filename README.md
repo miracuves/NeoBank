@@ -1,7 +1,7 @@
 NeoBank Solution: Revolutionizing Banking for a Digital Tomorrow
 
 Unlock the future of banking with our comprehensive guide on NeoBank Solutions. Explore how NeoBank Solutions are reshaping financial landscapes and enhancing digital banking experiences.
-https://miracuves.com/solutions/finance-tech/neobank/
+https://miracuves.com/solutions/neobank/
 
 Introduction:
 In the rapidly evolving world of finance, NeoBank Solution emerges as a beacon of innovation. This article delves into the intricacies of NeoBank Solutions, providing a roadmap for understanding their significance, functionalities, and the transformative impact they bring to the banking sector.
